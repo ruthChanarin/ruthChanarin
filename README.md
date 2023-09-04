@@ -19,6 +19,6 @@
 - *JavaScript*
 
 
-📫 reach me chanarinruth@gmail.com
+📫 reach me chanarinruth@gmail.com  
   www.linkedin.com/in/ruth-chanarin/
 
