@@ -20,4 +20,5 @@
 
 
 📫 reach me chanarinruth@gmail.com
+  www.linkedin.com/in/ruth-chanarin/
 
